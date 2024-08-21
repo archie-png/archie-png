@@ -4,10 +4,16 @@
 
 
 
+
+
+
+![sucklet](https://github.com/user-attachments/assets/af41b2bd-30c7-4fe0-b325-ba54ff9465b6)
+
+
 ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆
 
 
-𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼
+![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)
 
 ｡ hi! my name is archie\zhenya\raccoon\delroy\delᅠ⋆
 
@@ -25,9 +31,18 @@
 ｡  my fandoms: regretevator, phighting, pressure, mandela catalogue, honkai star rail, 8:11, identity V, gasa4, persona 5 royal, doors, danganronpa, everymanhybrid, the slenderverse, marble hornets, sally face, unicorn wars, law of talos, broken colors, life is strange 1,2, friday night funkin, truecrime, the walten files, happy tree friends, welcome home, amanda the adventure, hypmic, omori, south park, evade, needy girl overdose, homestuck, clockwork orange and etc ⋆
 
 ｡  my kinnies: mark heathcliff, poob, ryker dublin, naib subedar, nagito komaeda, ren amamiya, sunday, jonah marshall, max caulfield, basil, cashier    ⋆
+
+⋆
+
+![alife](https://github.com/user-attachments/assets/261066ee-6480-48f3-8855-8d02e8c03e5c)
+
+
+![nekojiru_stamp_01_by_tapu_lele-daqtn5u](https://github.com/user-attachments/assets/9c927788-04ed-4179-b926-594f82d6c8eb)![tumblr_inline_phwh896O131w0aona_500](https://github.com/user-attachments/assets/739f437a-e873-4fca-b4fd-602b6c79fafc)![urjjqi](https://github.com/user-attachments/assets/7bb39eed-2a8a-41ef-b418-855f8f04cf2e)![jw_by_molly_stamps-da855iw](https://github.com/user-attachments/assets/e8163aaa-92c2-42ec-87b1-b6d114b91fb3)![dasj1xd-3c05d229-9353-4f4e-96df-bf15bb78337d](https://github.com/user-attachments/assets/9e0a11e1-6249-4598-af52-7a10495727ee)![dbbm573-bad5b8fb-3cb1-4409-96a4-ab9c7606f76e](https://github.com/user-attachments/assets/2d200248-7f50-4d73-be77-f7ea6577c588)
 ㅤ
 
-𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼
+![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)
+
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ｡ welcome to my social networkᅠ⋆ 
