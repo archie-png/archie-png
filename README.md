@@ -11,7 +11,7 @@
 
 ![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)![image36](https://github.com/user-attachments/assets/dd6e6695-baad-40d8-b852-99f5dc677175)
 
-｡ hi! my name is archie\zhenya\raccoon\delroy\delᅠ⋆
+｡ hi! you can call me archie\zhenya ⋆
 
 ｡  my pronouns are he\him\his. agender  ⋆ 
 
