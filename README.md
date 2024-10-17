@@ -1,8 +1,8 @@
 ![tumblr_6b3659002e1d9a37d13d9184be313cd5_41c0b2d7_400](https://github.com/user-attachments/assets/be82afe9-2f12-4d77-b5fe-3e974c98a92d)![tumblr_6b3659002e1d9a37d13d9184be313cd5_41c0b2d7_400](https://github.com/user-attachments/assets/be82afe9-2f12-4d77-b5fe-3e974c98a92d)
 
+![tumblr_4854573de6a70c12a7561f05eeee4996_99d5f3d1_400](https://github.com/user-attachments/assets/f043f34a-57c5-4b7a-9583-340673220c79)
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓜𝓨 𝓢𝓞𝓒𝓘𝓐𝓛 𝓝𝓔𝓣𝓦𝓞𝓡𝓚
+![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af)![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af)![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af) 𝓜𝓨 𝓢𝓞𝓒𝓘𝓐𝓛 𝓝𝓔𝓣𝓦𝓞𝓡𝓚  ![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af)![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af)![tumblr_0a7289dbb97ebfe2095a012de32a9f22_39f385e5_75](https://github.com/user-attachments/assets/52b8d3c2-7e25-4e24-8cd3-a97a05fbf2af)
   ᅠᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ   
  <div id="badges">
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠ<a href="https://t.me/archie_arrr">
